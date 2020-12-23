@@ -17,7 +17,7 @@ You are welcome to discuss it on:
 <br/>
 <br/>
 
-<a href="https://www.buymeacoffee.com/KGEzqayNQ" target="_blank">
+<a href="https://www.buymeacoffee.com/aaabdyrahmanov" target="_blank">
   <img src="https://www.buymeacoffee.com/assets/img/guidelines/download-assets-sm-2.svg" alt="Buy Me A Coffee"/>
 </a>
 
